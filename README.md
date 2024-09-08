@@ -4,3 +4,4 @@
 ![image](https://raw.githubusercontent.com/GiseleHakim/Portfolio/main/Screen%20Shot%202024-09-07%20at%204.37.31%20PM.png)
 
 ## GIS Resume
+![image](https://raw.githubusercontent.com/GiseleHakim/Portfolio/main/Screen%20Shot%202024-09-07%20at%208.01.19%20PM.png)
